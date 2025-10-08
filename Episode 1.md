@@ -83,3 +83,37 @@ Rian shot him a sideways look. “What are you now, a spy too? You picked the wr
 
 Kade laughed, and the cart eased to a stop along the food court’s perimeter. The two men stepped off, blending into the slow tide of station workers in line for their morning ration. The hum of the hall and the faint scent of rehydrated protein filled the air. Another day, another cycle, beneath the Empire’s golden light.
 
+Rian placed his datapad beneath the scanner.
+“Rian J. Mecken — breakfast,” he said flatly.
+The protein distributor beeped once, acknowledged the request, and released a portion of nutrient paste onto a dented tray. A faint hiss of steam rose from the nozzle, carrying that familiar metallic scent of recycled water and synthesized soy.
+
+Around him, the food court buzzed with overlapping conversations, a chorus of voices bouncing off metal and glass. As he picked up a tray and grabbed a spoon from the communal bin, fragments of chatter began to cut through the noise.
+
+“My brother works the palace gates in Dam-Torsad,” a voice said nearby, urgent and excited. “He texted me this morning — said Radek was the one who provided the key intel that led to the Blood Raider’s capture.”
+
+Rian slowed his step, turning his head to scan the crowd, but before he could locate the source, another voice joined in.
+
+“The Capsuleer Radek? The Lord’s chosen one? Well, of course it was him". 
+
+The murmur spread like static across the tables, reverence mixed with fear. Rian exhaled and resumed his pace, navigating through the crowd toward the table where Kade was already waiting.
+
+He noticed two men walked parallel to him, their movements crisp, purposeful. He recognized them instantly by their attire: black and brown leather trimmed in gold, the Viziam insignia stitched boldly on their shoulders.
+
+Viziam is the Amarr Empire’s crown jewel of technology and weapons research and rarely had business this far out in Domain. Seeing their traders here, of all places, felt off. Aliastra was a retail station indeed, but not one of importance.
+
+Rian frowned slightly. “What in His light are Viziam traders doing here?” he muttered, half to himself, as he took a seat across from Kade.
+
+“What?” Kade mumbled, head tilted toward his tray, mouth still half-full.
+
+Rian grimaced slightly. “There are two Viziam traders here. Did you see them?”
+
+Kade looked up, still chewing. “Eh… no. But did you hear? Radek’s the one who gave the intel on that spy!”
+He pointed toward the next table, where a cluster of people had already gathered around someone’s datapad. “That guy’s brother said it.”
+
+Rian followed his gesture just as a voice from that table spoke loudly:
+“He’s texting me again, it says *Radek single-handedly wiped out a whole Raider strike fleet. Held the last frigate scrambled until the Navy jumped in from Ertoo, Aridia. After interrogation, they found the spy on Amarr Prime.*”
+
+For a moment, the food court erupted, a wave of shouting, laughter, and applause swelling through the hall. Someone slammed a tray on a table in celebration; others raised their cups in salute.
+
+Kade jumped to his feet and joined in, clapping wildly, his spoon clattering to the floor. Rian hesitated, watching the ripple of excitement spread around him. Then, despite himself, he found his hands moving. Slow, but deliberate he joins the applause of the Empire’s faithful.
+
