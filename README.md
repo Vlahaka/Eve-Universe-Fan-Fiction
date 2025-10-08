@@ -1,3 +1,5 @@
+<img width="403" height="151" alt="1000005586" src="https://github.com/user-attachments/assets/3ef1927a-9cbe-43e5-9ad4-af176b9b3157" />
+
 # Eve Universe Fan Fiction
 
 Welcome to the **Eve Universe Fan Fiction** project! This repository is dedicated to original fan fiction stories set in the universe of EVE Online, the legendary science-fiction MMORPG. Here you’ll find episodic narratives exploring the lives, conflicts, and mysteries within New Eden.
