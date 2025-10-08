@@ -156,4 +156,7 @@ Occasionally, Rian and Kade exchanged brief glances carrying wordless acknowledg
 They passed through a succession of wide service corridors, each opening into colossal docks and auxiliary hangars. Shafts of golden light spilled through the high partitions, scattering against plumes of coolant mist and glinting on steel scaffolds.
 
 And then, far ahead framed by the immense arch of the final bay stood the silhouette of the Oracle-class battlecruiser.
-Vertical. Ancient. Dormant. Clamped. 
+
+Vertical. Ancient. Dormant.
+
+It hung motionless, clamped to the maintenance rig like a caged giant, its hull dark and unpowered. Thick magnetic anchors secured its frame to the docking lattice. Normally, ships floated gracefully in their berths, suspended by null-grav fields, but not this one, for its capacitor systems can’t sustain null-grav suspension.
