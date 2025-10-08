@@ -147,3 +147,13 @@ He turned the pad toward Kade. “Come on. We need to get moving. The Oracle is 
 Kade sighed, the moment of reflection fading into duty. “Did the new dampeners arrive?” he asked, standing and picking up his tray. “Or are we realigning them again?”
 
 Rian rose as well, balancing his own tray as they walked toward the disposal chute. “According to this,” he said, tapping the datapad, “they were delivered this morning. So we swap them out, and if the stars are kind, we finish today.”
+
+The grav-cart glided steadily along the guide track toward Hangar 133-B. Neither man spoke; only the soft hum of the engines and the distant thrum of the station filled the silence between them.
+Occasionally, Rian and Kade exchanged brief glances carrying wordless acknowledgments, sometimes even a tired smile.
+
+<img width="1536" height="1024" alt="1000005588" src="https://github.com/user-attachments/assets/a6d29bde-46ea-46dc-8d78-a2f71f79578a" />
+
+They passed through a succession of wide service corridors, each opening into colossal docks and auxiliary hangars. Shafts of golden light spilled through the high partitions, scattering against plumes of coolant mist and glinting on steel scaffolds.
+
+And then, far ahead framed by the immense arch of the final bay stood the silhouette of the Oracle-class battlecruiser.
+Vertical. Ancient. Dormant. Clamped. 
