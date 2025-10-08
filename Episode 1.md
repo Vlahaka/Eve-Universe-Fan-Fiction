@@ -89,7 +89,7 @@ The protein distributor beeped once, acknowledged the request, and released a po
 
 Around him, the food court buzzed with overlapping conversations, a chorus of voices bouncing off metal and glass. As he picked up a tray and grabbed a spoon from the communal bin, fragments of chatter began to cut through the noise.
 
-“My brother works the palace gates in Dam-Torsad,” a voice said nearby, urgent and excited. “He texted me this morning — said Radek was the one who provided the key intel that led to the Blood Raider’s capture.”
+“My brother works the palace gates in Dam-Torsad,” a voice said nearby, urgent and excited. “He texted me this morning, he said Radek was the one who provided the key intel that led to the Blood Raider’s capture.”
 
 Rian slowed his step, turning his head to scan the crowd, but before he could locate the source, another voice joined in.
 
