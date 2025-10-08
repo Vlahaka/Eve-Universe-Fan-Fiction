@@ -120,3 +120,30 @@ For a moment, the food court erupted, a wave of shouting, laughter, and applause
 
 Kade jumped to his feet and joined in, clapping wildly, his spoon clattering to the floor. Rian hesitated, watching the ripple of excitement spread around him. Then, despite himself, he found his hands moving. Slow, but deliberate he joins the applause of the Empire’s faithful.
 
+By the time Rian rose to his feet, the wave of excitement had already begun to fade. Kade turned toward him, eyes still bright.
+
+“Man, I’d give anything to be a capsuleer...” He glanced around, realizing his spoon had vanished. “I’d be a god.”
+
+He spotted it on the floor and bent to pick it up, brushing it off with a grin.
+
+“Be careful what you wish for,” Rian said, his tone heavy with disdain. “What’s there to want? To be trapped in those eggs they call capsules?” He narrowed his eyes at Kade.
+
+“But...”
+
+“They’re only immortal inside those pods,” Rian cut him off, his voice rising slightly as he gestured with his own spoon. “Once they’re out, they’re just like you and me.” He tossed the spoon into the tray with a metallic clatter. “What’s so glorious about spending eternity sealed in a tank, staring at the void?”
+
+Kade frowned, clearly offended, and hurried to defend them. “But they do come out. Sometimes.” He inspected his spoon for stray germs, unwilling to look Rian in the eye.
+
+Rian snorted. “Yeah... for the Emperor’s blessing ceremonies, or when their patrons demand it. Outside of that? Hardly anyone’s ever seen a capsuleer in the flesh.”
+
+Kade stared down at his empty tray, the shine of the overhead light reflected in its surface. He set his spoon gently inside.
+
+“But the never-ending ISK must be nice,” he murmured.
+
+Rian smirked faintly. “Well, I can’t argue with that. But...” he reached into his pocket and pulled out his datapad “what good is money if you can’t even live properly?”
+
+He turned the pad toward Kade. “Come on. We need to get moving. The Oracle is waiting.”
+
+Kade sighed, the moment of reflection fading into duty. “Did the new dampeners arrive?” he asked, standing and picking up his tray. “Or are we realigning them again?”
+
+Rian rose as well, balancing his own tray as they walked toward the disposal chute. “According to this,” he said, tapping the datapad, “they were delivered this morning. So we swap them out, and if the stars are kind, we finish today.”
