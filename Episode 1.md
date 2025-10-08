@@ -3,6 +3,9 @@
 > **Amarr Empire**
 > **06:00 Hours Standard Time**
 
+![1000005577](https://github.com/user-attachments/assets/ca594b2c-f9a6-4f6e-aeba-d29dd7b346e3)
+
+
 “Engineer Rian J. Mecken...”
 
 The compact, metallic quarters flickered to life as the station AI’s voice resonated through the walls calm, feminine, and unnervingly neutral.
