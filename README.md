@@ -8,7 +8,7 @@ Welcome to the **Eve Universe Fan Fiction** project! This repository is dedicate
 
 ## 📖 Episode List
 
-- [Episode 1](https://github.com/Vlahaka/Eve-Universe-Fan-Fiction/blob/main/Episode%201.md):  
+[![Episode 1](https://img.shields.io/badge/Episode%201-d4af37?style=for-the-badge)](https://github.com/Vlahaka/Eve-Universe-Fan-Fiction/blob/main/Episode%201.md)  
   Follow Engineer Rian J. Mecken as he navigates life on the Aliastra Retail Center in the Amarr Empire’s Domain region. A routine day quickly spirals into intrigue as rumors spread of Blood Raider spies and covert research on a prototype dreadnought.  
   _Features immersive world-building, original characters, and artwork embedded within the episode._
 
