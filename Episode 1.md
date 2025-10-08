@@ -104,6 +104,8 @@ He noticed two men walked parallel to him, their movements crisp, purposeful. He
 
 Viziam is the Amarr Empire’s crown jewel of technology and weapons research and rarely had business this far out in Domain. Seeing their traders here, of all places, felt off. Aliastra was a retail station indeed, but not one of importance.
 
+Officially, the station still bore Aliastra’s name, but the Gallente design had long been buried under layers of Amarr refit. Gold replaced glass, scripture replaced signage and commerce got dressed in devotion.
+
 Rian frowned slightly. “What in His light are Viziam traders doing here?” he muttered, half to himself, as he took a seat across from Kade.
 
 “What?” Kade mumbled, head tilted toward his tray, mouth still half-full.
