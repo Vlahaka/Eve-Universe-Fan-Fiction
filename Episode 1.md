@@ -73,6 +73,8 @@ This one had windows stretching from floor to ceiling, vast transparent panes th
 
 Far ahead, Rian spotted the food court, a noisy collection of stalls and communal benches scattered beneath a lattice of hanging banners bearing the imperial sigil. He adjusted the cart’s vector toward it without hesitation.
 
+<img width="1536" height="1024" alt="1000005580" src="https://github.com/user-attachments/assets/5eb98072-3dc1-4cf3-8676-e459c8880e55" />
+
 “Well, they caught the bloody heretic,” Rian said, shaking his head. “Maybe he didn’t get what he came for. Either way, I’d rather not find myself face to face with one of those psychopaths.”
 
 Kade leaned back, half-grinning. “But where do you think that dread might be?”
