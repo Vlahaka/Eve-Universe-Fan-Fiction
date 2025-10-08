@@ -22,6 +22,8 @@ He rubbed his temples, feeling the low hum of the station through the metal floo
 
 “Five hundred ISK a week is still better than any on-planet site,” he told himself as he swung his legs off the bunk and pulled on his gold-brown work tunic.
 
+<img width="1536" height="1024" alt="1000005579" src="https://github.com/user-attachments/assets/87c50fd0-6518-42ef-9cab-d8db9b886a3a" />
+
 The life-support scrubbers cycled louder, the recycler fans spooling up until their mechanical roar nearly drowned out his thoughts. He opened the tiny basin in the corner of the quarter and splashed cold water against his face, the metal rim leaving a thin ring of condensation on his palm.
 
 “If I don’t finish repairing that fossil today, I’ll tear it down myself and watch it fall apart,” the thought made him smile despite the exhaustion. He imagined the captain’s face, that smug, millionaire look, and the grin widened. “Would love to see his expression when the diagnostics finally go to hell.”
