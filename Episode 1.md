@@ -6,7 +6,7 @@
 >
 > **06:00 Hours Standard Time**
 
-
+![1000005596](https://github.com/user-attachments/assets/95457d71-7999-412b-8790-d484a437fe11)
 
 “Engineer Rian J. Mecken...”
 
