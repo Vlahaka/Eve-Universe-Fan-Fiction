@@ -313,7 +313,7 @@ Rian and Kade looked up and froze.
 
 Kade’s eyes widened as his head turned toward Rian. “He’s a capsuleer,” he said, his tone rising with disbelief.
 
-The captain forced a ragged breath. “Help me... inside,” he managed. “Then return to the Oracle’s access point... and wait.”
+The captain forced a ragged breath. “Help me... inside,” he managed. “Then return to the Oracle’s access port... and wait.”
 
 They obeyed. The two men lifted him carefully, guiding his body toward the small, egg-shaped pod at the center of the hold. Thick cables and fluid lines snaked across the chamber’s walls, converging on the vessel like veins feeding a heart.
 
@@ -324,3 +324,50 @@ They slid the captain through the top aperture. Inside, translucent fluid shimme
 Rian leaned closer, gritting his teeth, and pressed the coupler into place. A sharp click echoed.
 
 A deep hum filled the room, smooth and resonant. The fluid surrounding the captain shifted hue, from pale amber to a luminous, cerulean blue.
+
+The captain lifted his head toward Rian and Kade, a faint, satisfied smile curling on his lips.
+The two men exchanged a glance confused and uncertain, then looked back just as the captain’s expression began to fade. His smile softened, the light drained from his eyes, and within seconds, the pod’s low hum dwindled to silence. The once-luminous fluid dulled, its blue hue bleeding into gray.
+
+“He’s dead,” Rian said quietly, his voice calm but hollow.
+
+Kade wiped a smear of blood from his cheek with his sleeve. “He’s a capsuleer, Rian. He died in his capsule. That doesn’t mean he’s dead for real.”
+
+Rian shook his head, disappointment edging his tone. “Then he’s probably already somewhere else, safe in another clone. We were just here to help him die properly.”
+
+He straightened, eyes scanning the dim chamber. “We need to reach the escape pods.”
+
+“But he said to wait by the access port,” Kade reminded him, already moving toward the corridor.
+
+Rian followed, frowning. “Wait for what? He’s already gone.”
+
+Reaching back to the access port, Rian stepped outside, Kade did not. 
+
+“What are you waiting for?” he snapped over his shoulder. “You think he’s coming back to rescue you? He’s probably not even in the same region anymore.”
+
+Kade stood his ground, planting his boots on the Oracle’s black, gold-veined deck. “He said to wait,” he replied simply. “So I’m waiting.”
+
+Rian scoffed. “Kade, don’t be a fool. It’s impos...”
+
+He stopped mid-sentence. From somewhere beyond the fires came faint, distorted voices, chatter rises through the crackling haze.
+
+“What the hell...?” Rian turned sharply, scanning the wreckage for the source.
+
+Before he could step forward, Kade grabbed him by both arms and yanked him back inside the ship.
+
+The chatter grew louder, dozens of voices now, accompanied by the pounding of synchronized footsteps echoing through the ruined hangar. Then, without warning, a deep, resonant pulse rolled through the structure, a sonic shockwave descending from above.
+
+The air itself vibrated. The roar that followed was monumental, vast and alive, descending with divine might.
+
+Rian stepped back out into the open, the heat of the fires washing against his face. He lifted his gaze and froze.
+
+A colossal silhouette was gliding down from the upper docks, descending through the haze like an angel of gold and steel. Kade joined him at the threshold, his eyes widening as the ship’s vast tungsten armor caught the light, each panel trimmed in radiant gold.
+
+“The Abaddon…” Rian breathed.
+
+They had heard of it before. Amarr’s front-line battleship, the Empire’s hammer of divine wrath, but neither had ever seen one in person. Now it filled the hangar, a titan descending upon the wreckage of lesser vessels.
+
+A crackling sound tore through the air, sharp and electric, followed by a flash so bright it burned their vision white for a brief moment. 
+
+Then came the thunder.
+
+A distant explosion rippled across the ruined hangar, far into the distance. Rian saw debris and bodies thrown into the air. The realization struck him cold. The Abaddon had fired.
