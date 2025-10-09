@@ -317,6 +317,8 @@ The captain forced a ragged breath. “Help me... inside,” he managed. “Then
 
 They obeyed. The two men lifted him carefully, guiding his body toward the small, egg-shaped pod at the center of the hold. Thick cables and fluid lines snaked across the chamber’s walls, converging on the vessel like veins feeding a heart.
 
+![1000005597](https://github.com/user-attachments/assets/872b2a1a-034a-4baa-bbcc-d0d7c372bc4e)
+
 They slid the captain through the top aperture. Inside, translucent fluid shimmered as the pod came alive, tiny motes of light swirling in suspension. The captain’s face tightened in pain as he reached for the thick neural conduit behind his head. His hands trembling, failing to connect it.
 
 Rian leaned closer, gritting his teeth, and pressed the coupler into place. A sharp click echoed.
