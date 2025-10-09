@@ -189,3 +189,27 @@ Rian slapped his hand lightly away. “If he’s here this early, it probably me
 Kade groaned, letting his shoulders drop. “Of course... more work for us. Probably another one of those upgrades we’ll have to redo later anyway.”
 
 Rian allowed himself a half-smile. “Welcome to the glamour of ship maintenance.”
+
+“Check those new dampeners,” Rian ordered, making his way toward the captain. “I’ll go see what he wants today.”
+
+“Aye aye, boss,” Kade replied, already prying open the shipment crate.
+
+Hangar 133-B stretched vertically through several levels stacked above one another. On the far side, directly opposite the scaffolds, yawned a massive transit tunnel, the artery through which ships entered and departed the hangar.
+
+Rian glanced toward it as he walked. The tunnel always unsettled him, for it was vast, silent, and devoid of light. When no ship passed through, it became an abyss, swallowing every photon until it looked like a black hole cut through the station’s wall.
+
+“The absence of light terrifies us, doesn’t it?” came a voice ahead.
+
+Rian turned. The Oracle’s captain greeted, his gold-trimmed uniform catching the ambient glow.
+
+“The Emperor’s grace guide you, my Lord Captain,” Rian said quickly. His posture straightened; hands pressed to his sides as he bowed deeply.
+
+“And with you,” the captain answered, dismissing the salute with a faint motion of his hand. “The new dampeners arrived, yes? Will you have them installed by end of cycle?”
+
+Rian glanced over his shoulder. Kade was still wrestling with the packaging crate. “We’re inspecting them as we speak, my Lord.”
+
+The captain followed his gaze, noticing Kade’s struggle. A thin smile touched his lips. “Very well. I’ll be aboard the ship for most of the day. Have lunch with me, will you?”
+
+Rian froze. His eyes widened slightly and the world seemed to fade around him for a second. “Of... of course, my Lord.”
+
+“Carry on,” the captain said, already turning toward the Oracle’s airlock.
