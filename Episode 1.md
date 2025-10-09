@@ -194,7 +194,8 @@ Rian allowed himself a half-smile. “Welcome to the glamour of ship maintenance
 
 “Aye aye, boss,” Kade replied, already prying open the shipment crate.
 
-Hangar 133-B stretched vertically through several levels stacked above one another. On the far side, directly opposite the scaffolds, yawned a massive transit tunnel, the artery through which ships entered and departed the hangar.
+Hangar 133-B stretched vertically through several levels stacked above one another. High above the Oracle’s berth, the grav-field thrummed under the weight of a heavier ship. A low, resonant vibration that rolled through the hangar’s metal frame.
+On the far side, directly opposite the scaffolds, yawned a massive transit tunnel, the artery through which ships entered and departed the hangar.
 
 Rian glanced toward it as he walked. The tunnel always unsettled him, for it was vast, silent, and devoid of light. When no ship passed through, it became an abyss, swallowing every photon until it looked like a black hole cut through the station’s wall.
 
@@ -275,8 +276,7 @@ The hangar shook violently, every tremor throwing sparks and debris from above. 
 “We’ll take you to the pods, Cap!” Kade yelled, gripping the captain’s arm and pulling with all his strength.
 
 “No, there’s... no time!” the captain gasped between labored breaths. His uniform was torn, one leg crushed beneath the debris. “We’ll all be dead before we reach them...”
-
-He winced in pain, eyes darting toward the massive ship towering them. “Take me to the Oracle. cargo hold one... we can survive there.”
+He winced in pain, eyes darting toward the massive ship towering them. “Take me to the Oracle. Cargo hold one... we can survive there.”
 
 “The ship has no power, Captain! We can’t even pressurize it!” Rian shouted back, forcing the man’s arm over his shoulder while Kade did the same on the other side.
 
