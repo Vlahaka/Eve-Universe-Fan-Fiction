@@ -358,7 +358,7 @@ The chatter grew louder, dozens of voices now, accompanied by the pounding of sy
 
 The air itself vibrated. The roar that followed was monumental, vast and alive, descending with divine might.
 
-Rian stepped back out into the open, the heat of the fires washing against his face. He lifted his gaze and froze.
+Rian stepped back out into the open, and lifted his gaze and froze.
 
 A colossal silhouette was gliding down from the upper docks, descending through the haze like an angel of gold and steel. Kade joined him at the threshold, his eyes widening as the ship’s vast tungsten armor caught the light, each panel trimmed in radiant gold.
 
@@ -366,8 +366,10 @@ A colossal silhouette was gliding down from the upper docks, descending through 
 
 They had heard of it before. Amarr’s front-line battleship, the Empire’s hammer of divine wrath, but neither had ever seen one in person. Now it filled the hangar, a titan descending upon the wreckage of lesser vessels.
 
-A crackling sound tore through the air, sharp and electric, followed by a flash so bright it burned their vision white for a brief moment. 
+A crackling sound tore through the air, sharp and electric,like a lightning. And at the same time a flash so bright burned their vision white for a brief moment. 
 
 Then came the thunder.
 
-A distant explosion rippled across the ruined hangar, far into the distance. Rian saw debris and bodies thrown into the air. The realization struck him cold. The Abaddon had fired.
+A distant explosion rippled across the ruined hangar, far into the distance. Rian saw debris and bodies thrown into the air. The realization left him chilled. 
+
+The Abaddon had fired one of its lasers. 
