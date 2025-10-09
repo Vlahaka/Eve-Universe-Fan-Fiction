@@ -366,7 +366,7 @@ A colossal silhouette was gliding down from the upper docks, descending through 
 
 They had heard of it before. Amarr’s front-line battleship, the Empire’s hammer of divine wrath, but neither had ever seen one in person. Now it filled the hangar, a titan descending upon the wreckage of lesser vessels.
 
-A crackling sound tore through the air, sharp and electric,like a lightning. And at the same time a flash so bright burned their vision white for a brief moment. 
+A crackling sound tore through the air, sharp and electric, like a lightning. And at the same time a flash so bright burned their vision white for a brief moment. 
 
 Then came the thunder.
 
