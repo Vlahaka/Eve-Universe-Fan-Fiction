@@ -162,3 +162,30 @@ And then, far ahead framed by the immense arch of the final bay stood the silhou
 Vertical. Ancient. Dormant.
 
 It hung motionless, clamped to the maintenance rig like a caged giant, its hull dark and unpowered. Thick magnetic anchors secured its frame to the docking lattice. Normally, ships floated gracefully in their berths, suspended by null-grav fields, but not this one, for its capacitor systems can’t sustain null-grav suspension.
+
+As they approached the loading bay, the shadow of the colossal battlecruiser fell over them. Rian slowed the grav-cart, watching the morning shift already in motion. Workers were climbing scaffolds that wrapped the ship’s massive frame, others guided industrial arms that replaced sections of scorched tungsten armor with fresh plating. Hydraulic lifts hissed, and sparks flickered like fireflies against the hangar’s golden haze.
+
+The Oracle loomed above them, motionless and bound, a slumbering giant surrounded by the noise of smaller lives.
+
+The cart hadn’t even come to a full stop before Kade jumped off, landing lightly on the platform. “You know what’s weird?” he said, walking toward Rian, eyes fixed on the ship. “We’ve never seen the crew. Only the captain.”
+
+Rian stepped down from the cart more deliberately, his calm unbroken. “I asked the same thing yesterday,” he said. “The captain told me he’d given them planetside leave.”
+
+They walked together toward the scaffolds, boots echoing on the deck. Kade frowned. “Still... no guards, no maintenance crew. Since I’ve been stationed here, I’ve never seen a ship left completely unguarded.”
+
+Rian opened his datapad as they walked, scrolling through the Oracle’s maintenance manifest and personnel logs. “What do I care,” he muttered. “I’m paid to fix things, not to ask useless questions.”
+
+He raised an eyebrow, datapad shows two identical entries for the same crew member.
+“Duplicate registration,” he murmured, quickly closing the screen. “I suggest you focus on your job, Kade.”
+
+As they reached their workstation, the scene ahead caught their attention, a vast maintenance platform stretched between the hangar floor and the ship’s primary access port, framed on both sides by towering scaffolds.
+
+In the center of the platform stood the Oracle’s captain. His uniform gleamed under the hangar lights, immaculate as always.
+
+“He’s already here,” Kade said, surprised, pointing toward the figure.
+
+Rian slapped his hand lightly away. “If he’s here this early, it probably means he’s bringing in another mod he wants installed.”
+
+Kade groaned, letting his shoulders drop. “Of course... more work for us. Probably another one of those upgrades we’ll have to redo later anyway.”
+
+Rian allowed himself a half-smile. “Welcome to the glamour of ship maintenance.”
