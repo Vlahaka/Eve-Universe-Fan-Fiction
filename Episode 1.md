@@ -276,8 +276,50 @@ The hangar shook violently, every tremor throwing sparks and debris from above. 
 “We’ll take you to the pods, Cap!” Kade yelled, gripping the captain’s arm and pulling with all his strength.
 
 “No, there’s... no time!” the captain gasped between labored breaths. His uniform was torn, one leg crushed beneath the debris. “We’ll all be dead before we reach them...”
-He winced in pain, eyes darting toward the massive ship towering them. “Take me to the Oracle. Cargo hold one... we can survive there.”
+He winced in pain, eyes darting toward the massive ship towering them. “Take me inside the Oracle. Cargo hold one... we can survive there.”
 
 “The ship has no power, Captain! We can’t even pressurize it!” Rian shouted back, forcing the man’s arm over his shoulder while Kade did the same on the other side.
 
 The captain’s voice dropped, harsh but certain. He locked eyes with Rian, his tone suddenly cold and absolute. “If you want to live...” another shower of sparks fell around them “do as I say.”
+
+Rian and Kade locked eyes and with no words, they agreed. The captain’s plea was final, and they believed it.
+
+As they turn to enter the Oracle, Rian realized that the shaking had stopped.
+No more tremors. No more impacts.
+Only the shrill wail of the klaxons, the looping of the automated voice, the crackle of distant fires and the occasional metallic clang of debris still falling.
+
+They stepped inside.
+
+The ship greeted them with silence. Arched, gold-lined corridors stretched ahead, their symmetry almost divine. The floors shimmered with a deep, reflective black streaked with veins of gold like frozen lightning. Every sound they made echoed against the pristine walls.
+
+“There... straight ahead,” the captain groaned, his voice fading. “Not much time left.”
+
+They hurried down the main passageway until they reached the blast doors of Cargo Hold One. The doors were unlike any Rian had seen before, they were far thicker, reinforced with dense plating and hydraulic locks.
+
+“We’re here, Captain. What do we do?” Rian asked, steadying him.
+
+The captain’s breathing was shallow now. His eyelids fluttered as he turned his head toward the right. “The... terminal.”
+
+Rian followed his gaze. The interface stood embedded in the wall, inert and dark. The captain released Kade’s shoulder, reaching out with a trembling hand. When his palm touched the panel, it came alive.
+
+The heavy blast doors let out a deep, metallic groan before they even began to move. A screech occurred as the locks disengaged one by one.
+
+When the gap was wide enough, the three slipped inside.
+
+Rian and Kade looked up and froze.
+
+“Is that…” Kade whispered.
+
+“It cannot be,” Rian said, his voice firm but uncertain.
+
+Kade’s eyes widened as his head turned toward Rian. “He’s a capsuleer,” he said, his tone rising with disbelief.
+
+The captain forced a ragged breath. “Help me... inside,” he managed. “Then return to the Oracle’s access point... and wait.”
+
+They obeyed. The two men lifted him carefully, guiding his body toward the small, egg-shaped pod at the center of the hold. Thick cables and fluid lines snaked across the chamber’s walls, converging on the vessel like veins feeding a heart.
+
+They slid the captain through the top aperture. Inside, translucent fluid shimmered as the pod came alive, tiny motes of light swirling in suspension. The captain’s face tightened in pain as he reached for the thick neural conduit behind his head. His hands trembling, failing to connect it.
+
+Rian leaned closer, gritting his teeth, and pressed the coupler into place. A sharp click echoed.
+
+A deep hum filled the room, smooth and resonant. The fluid surrounding the captain shifted hue, from pale amber to a luminous, cerulean blue.
