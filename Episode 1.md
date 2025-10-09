@@ -213,3 +213,71 @@ The captain followed his gaze, noticing Kade’s struggle. A thin smile touched 
 Rian froze. His eyes widened slightly and the world seemed to fade around him for a second. “Of... of course, my Lord.”
 
 “Carry on,” the captain said, already turning toward the Oracle’s airlock.
+
+Rian stood motionless, his thoughts spiraling.
+*A station worker, having lunch with a captain*, it was unthinkable. His mind raced as he watched the man walk away. Was it curiosity? Worry? Excitement? Or perhaps an opportunity, a chance to move beyond maintenance work and into something greater, something that paid perhaps more ISK?
+
+He exhaled sharply, trying to steady himself, and turned toward Kade to help with the unpacking.
+
+Then, a sudden bang.
+
+A deep, muffled boom rolled through the hangar from somewhere distant, the kind that traveled through the floor before it reached the ears. Every worker froze. Tools hung suspended in mid-motion. The entire hangar, was vast, alive, thunderous just seconds before, suddenly fell completely silent,  some tools still buzzing.
+
+Rian’s head snapped upward, eyes scanning the higher decks. Across the platform, the captain had also stopped, one foot placed on the platform to the ship’s hull.
+
+For a heartbeat, nothing moved.
+
+Then came another boom, sharper, closer, less muffled. The sound tore through the air, echoing up the scaffold towers and rattling the clamps that held the Oracle in place.
+
+Before anyone could speak, an explosion erupted.
+The shockwave rippled through the hangar, knocking workers off balance and sending a rain of dust and sparks from the upper levels. The lights flickered, dimmed, then burst back into life, tinted blood-red.
+
+**Alarms erupted.**
+“Hostile incursion detected in orbit!
+Proceed to the evacuation pods! This is not a drill" 
+The automated voice burst, repeating itself over the wail of klaxons.
+
+Rian stumbled backward, catching himself on a railing. “What the hell was that?!” he shouted, though his words were drowned by the roar of venting pressure somewhere in the distance.
+
+The massive tunnel at the far end of the hangar, that black void he’d always hated, was no longer dark. It pulsed with light and shadows flickered within it. The air grew heavy with the scent of burning metal and insulation.
+
+Another explosion, this time came from the lower levels.
+The entire hangar convulsed and brightened for a second. Metal screamed as the scaffolds around the Oracle tore loose and collapsed, raining sparks and debris. Workers fell from the higher platforms, their shouts swallowed by the roar of shattering steel.
+
+Bulkhead doors slammed shut one after another with deafening force, sealing compartments in sequence. The sound of grinding servos and screaming voices filled the air, the panic spreads faster than the fire.
+
+Rian staggered, forces his breath steady. He scanned the chaos.
+
+Kade lay a few meters away, motionless at first. The shipment crate overturned beside him, its contents scattered across the deck. The dampeners still trembled, rolling from the residual vibration of the blast. The explosion must have thrown both Kade and the delivery clear across the bay.
+
+Rian’s heart lurched. He sprinted toward him. “Kade! Kade!”
+
+Before he could reach him, Kade stirred, one arm twitching, struggling to push himself upright amid the drifting haze and falling embers. Relief washed through Rian, but only for a moment. The air was still shaking with distant detonations.
+
+“Come on, Kade! We need to reach the pods!” Rian shouted, crouching beside him.
+
+Kade struggled to stand, coughing through the smoke. He lifted a trembling hand and pointed toward the Oracle.
+
+Rian followed his gaze and then he froze.
+
+Up on the platform near the ship’s entrance, the captain was pinned beneath a twisted section of collapsed scaffolding. Sparks rained around him, his gold-trimmed uniform now streaked with soot and blood.
+
+“We... we...” Kade tried to speak, but another coughing fit cut him off.
+
+“Come on,” Rian said, forcing his voice over the roaring alarms. “We have to help him!”
+
+He pulled Kade up by the arm, steadying him as the deck trembled again under another distant impact. The sound of pressurized air and groaning metal filled the hangar as they began pushing through the chaos toward the fallen captain.
+
+The hangar shook violently, every tremor throwing sparks and debris from above. Rian and Kade fought their balance, stumbling over twisted metal as they pushed forward, but they reached the captain.
+
+“Pull him!” Rian shouted, straining to lift a section of steel that had pinned the man down.
+
+“We’ll take you to the pods, Cap!” Kade yelled, gripping the captain’s arm and pulling with all his strength.
+
+“No, there’s... no time!” the captain gasped between labored breaths. His uniform was torn, one leg crushed beneath the debris. “We’ll all be dead before we reach them...”
+
+He winced in pain, eyes darting toward the massive ship towering them. “Take me to the Oracle. cargo hold one... we can survive there.”
+
+“The ship has no power, Captain! We can’t even pressurize it!” Rian shouted back, forcing the man’s arm over his shoulder while Kade did the same on the other side.
+
+The captain’s voice dropped, harsh but certain. He locked eyes with Rian, his tone suddenly cold and absolute. “If you want to live...” another shower of sparks fell around them “do as I say.”
